@@ -1,0 +1,2 @@
+# hello-world-
+New b here at GitHub and having heard so many good things and positive results in my research, I am super excited to learn with this open source platform!!! I am BRAND new, but am open and willing to learn.. No doubt I am in the right place after reviewing some of the material... I take comfort in knowing that I am a part of this amazing community which is the literal forefront of its kind... REVOLUTION 
